@@ -1,0 +1,2 @@
+# rama
+aku lupa makan
